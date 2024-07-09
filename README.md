@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jean-Baptiste-deLafayette
+- 👋 Hi, I’m @jamespangestu
 - 👀 I’m interested in widen my social connection with like-minded geek '_^
 - 🌱 I’m currently Study Computer Science and Mathematic at People's Friendship University of Russia
 - 💞️ I’m looking to collaborate on building tech startup with brilliant thinker outthere
