@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on building tech startup with brilliant thinker outthere
 - 📫 You can reach me on email or telegram
   Email : jamespangestu.de@gmail.com
-  Telegram : +62895410191574
+  Telegram : @Jamespangestu2024
   Only Text me if you're an interesting person. Just Kidding ^_^
 
 <!---
